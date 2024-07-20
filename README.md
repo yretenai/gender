@@ -1,3 +1,3 @@
 # gender
 
-it/its kitten thing
+deer/they/she i gues
